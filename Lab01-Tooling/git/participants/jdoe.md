@@ -6,7 +6,7 @@
 
 ## Activities/Hobbies:
 
-- Cycling, Swimming
+- Cycling, Swimming, and more
 
 ## Links:
 
